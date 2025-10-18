@@ -2,3 +2,4 @@ I like Revenant so much that I made this.Modified Aura's hairstyle No. 181，Mod
 Additional eye mod is provided
 Because of the braids on the chest and the messy hairstyle on the back.If possible, it is best to modify the weight yourself,However, you can still take photos without modifying them.
 I'd like to see more mods for Revenant, because I really like her.
+![Uploading Preview.png…]()
